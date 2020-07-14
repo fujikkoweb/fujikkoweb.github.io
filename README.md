@@ -1,0 +1,1 @@
+# fujikkoweb.github.io
